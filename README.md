@@ -1,2 +1,1 @@
-# bovvfnbfydt
 Rootgale Income Översikt 2025 – Vad ingen berättar för dig!
